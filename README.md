@@ -1,5 +1,5 @@
 # Make Your Search For The Best Pavers Newcastle Easier By Asking These Questions
-<img src="hhttps://cdn-cms.f-static.com/uploads/1844803/2000_5c4e88a574b76.jpg" alt="Block Paving Newcastle" style="float:left;width:350px;height:300px;">
+<img src="https://cdn-cms.f-static.com/uploads/1844803/2000_5c4e88a574b76.jpg" alt="Block Paving Newcastle" style="float:left;width:350px;height:300px;">
 
 Among the best and most popular flooring utilised in outdoor settings right now is paving. Thanks to its toughness, flexibility, and large range of patterns, it can certainly suit almost any location. With that in mind, anyone can conveniently locate competent <U><A HREF="https://efpaving.co.uk/pavers-newcastle.html">pavers Newcastle</A></U> based when planning to get this kind of flooring.
 
